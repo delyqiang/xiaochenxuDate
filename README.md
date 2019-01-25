@@ -12,5 +12,4 @@
  ![image](https://img3.doubanio.com/view/group_topic/l/public/p159023534.webp)
 
 
-![image](https://img3.doubanio.com/view/group_topic/l/public/p159023535.webp)
 
